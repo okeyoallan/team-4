@@ -23,3 +23,11 @@ Collins
 
 Ready set GO
 Wonderful
+
+
+## All Time Quotes
+>The streets were'nt meant for everyone, it's why they made sidewalks
+>
+> **\<Cookie Lyon> Empire**
+
+**JB**
