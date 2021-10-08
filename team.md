@@ -8,5 +8,16 @@ Write down your quote below and trust you me, it will motivate someone.
 **Let's get going.**
 
 
-> "Trust the **Timing** of your life"\
+> "Trust the **Timing** of your life"    
 Collins
+
+> *Always be great*
+ 
+ 
+ here is my quote:
+ 
+ > where ever you are planted, bloom with grace!
+
+
+  joyce wangari
+
